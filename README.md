@@ -59,9 +59,9 @@ Off in web nya
 
 ## ```GROUP SUPPORT```
 
-- [`Alphabot 1`](https://chat.whatsapp.com/EU890BcXjyBDkNaUT5WmYV)
-- [`Alphabot 2`](https://chat.whatsapp.com/E8NExJwIbhBJYzssfqJNsE)
-- [`Alphabot 3`](https://chat.whatsapp.com/KCSqHTky1apG7ApePsfiPy)
+- [`Ambo BOTZ 1`](https://chat.whatsapp.com/EeGHAVhAaYZBjJlV9KyAqU)
+- [`Ambo BOTZ 2`](https://chat.whatsapp.com/BF93PEmf80h3h61FqV0wsn)
+- [`Ambo BOTZ 3`](https://chat.whatsapp.com/FPVNygj21LxAiMh19ADDhu)
 
 ## `THANKS TO`
 
